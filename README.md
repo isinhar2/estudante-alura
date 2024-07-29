@@ -1,3 +1,4 @@
 # estudante-alura
 Eu sou a IsabellA, Estudo na Maria Das Dores no 1°serie do ensino médio 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmakeagif.com%2Fgif%2F-giH1Lu&psig=AOvVaw0ffTAvtZjXbtry8_iwgegp&ust=1722347427897000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCMjzwpCyzIcDFQAAAAAdAAAAABAQ)
+![](![image](https://github.com/user-attachments/assets/0a8c9541-3d26-4d77-9e75-0a16dde955fc)
+
